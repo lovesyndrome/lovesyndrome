@@ -1,6 +1,29 @@
 <div align="center">
+    
+  certified loner and ansayate daughtherson
 
-What? I'm just chilling with my friends
+<p align="center">
+  
+</p>
+<p align="center">
+  <img src="https://github.com/user-attachments/assets/8b161e28-78ae-4e13-86ad-4e001055ef1c" width="30"/>
+</p>
+<p align="center">
+hvy comf  △  24/7 afk
+</p>
+<p align="center">
+i have social anxiety 
+</p>
 
-wip I'm not dome uet.
-![link-zelda](https://github.com/user-attachments/assets/8b161e28-78ae-4e13-86ad-4e001055ef1c)
+<br>
+
+<p align="center">
+  <a href=https://rentry.co/hyrulewariorss>rrentry</a> ⠀⠀ <a href=https://windwakerss.atabook.org>atab</a>
+</p>
+
+<br>
+
+<div align="center">
+  <video src="https://github.com/user-attachments/assets/1400b7b7-d9c3-4e24-8f25-a98a318a82c8" />
+<div/>
+  
