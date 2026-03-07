@@ -5,11 +5,12 @@ am i really that dramatic
 <p align="center">
   
 </p>
+
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/a8a27f15-7786-4ab2-a7e6-c0189b3ef321" width="400"/>
+  <img src="https://github.com/user-attachments/assets/b6e0355a-3b7e-4dcf-b640-c25a251c61ef" width="400"/>
 </p>
 <p align="center">
-hvy comf  △  24/7 afk
+ME AND BRO literally
 </p>
 <p align="center">
 i have social anxiety 
