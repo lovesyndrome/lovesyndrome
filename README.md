@@ -25,7 +25,7 @@ i have social anxiety
 </p>
 <br>
 
-OKAY GUYS to tell u I DO NOT PLAY PT EVERYDAY possibly locked in watching tokyo revengers SO PLEAAAASE if you ever whisper to me, MAKE SURE YOU SIGN MY ATA so that I can see it aight? I'm offtab always and I disconnect everytime, ok? SO JUST TO LET U KNOWn!
+hi just to let u know I bias mikey but don't ever ask " do u kin him " fck no man I'm not invincible, I may be childish but I do not see myself fully him or slightly with the same personality. #BajiTora 4lifers
 
 <img width="351" height="251" alt="1113" src="https://github.com/user-attachments/assets/d161c2e9-1be6-4485-a6ea-b1e2d16b562f" />
 
