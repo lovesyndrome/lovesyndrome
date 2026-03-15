@@ -25,7 +25,7 @@ i have social anxiety
 </p>
 <br>
 
-hi just to let u know I bias mikey but don't ever ask " do u kin him " fck no man I'm not invincible, I may be childish but I do not see myself fully him or slightly with the same personality. #BajiTora 4lifers
+I'm going insane rn guys watch out with your words dumbassesm. #BajiTora 4lifers
 
 <img width="351" height="251" alt="1113" src="https://github.com/user-attachments/assets/d161c2e9-1be6-4485-a6ea-b1e2d16b562f" />
 
