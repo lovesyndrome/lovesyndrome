@@ -11,7 +11,7 @@ am i really that dramatic
    
 </p>
 <p align="center">
-ME AND BRO literally
+theres no way that no one knew I loved this anime since 2021 I was late but yeah
 </p>
 <p align="center">
 i have social anxiety 
