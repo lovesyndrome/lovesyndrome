@@ -28,6 +28,8 @@ i have social anxiety
 
 I'm going insane rn guys watch out with your words dumbassesm. #BajiTora 4lifers
 
+GUYS!! Mirai Nikki fans int im slowly loosing hope to watch it bare with me guys
+
 <img width="351" height="251" alt="1113" src="https://github.com/user-attachments/assets/d161c2e9-1be6-4485-a6ea-b1e2d16b562f" />
 
 </p> 
