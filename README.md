@@ -26,7 +26,7 @@ i have social anxiety
 </p>
 <br>
 
-yaoi line: bajitora, izakuku, takemikey kokoinui, hankisa, wait
+yaoi line: bajitora, izakaku, takemikey kokoinui, hankisa, wait
 
 GUYS!! Mirai Nikki fans int im slowly loosing hope to watch it bare with me guys
 
