@@ -26,7 +26,7 @@ i have social anxiety
 </p>
 <br>
 
-I'm going insane rn guys watch out with your words dumbassesm. #BajiTora 4lifers
+yaoi line: bajitora, izakuku, takemikey kokoinui, hankisa, wait
 
 GUYS!! Mirai Nikki fans int im slowly loosing hope to watch it bare with me guys
 
