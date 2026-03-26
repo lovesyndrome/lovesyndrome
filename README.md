@@ -14,11 +14,11 @@ am i really that dramatic
 theres no way that no one knew I loved this anime since 2021 I was late but yeah
 </p>
 <p align="center">
-i have social anxiety 
+IM SORRY NEW ATA I LOST IT!
 </p>
 <br>
 <p align="center">
-  <a href=https://rentry.co/hyrulewarriorss>rrentry</a> ⠀⠀ <a href=https://windwakers.atabook.org>atab</a>
+  <a href=https://rentry.co/hyrulewarriorss>rrentry</a> ⠀⠀ <a href=https://qcats.atabook.org/>atab</a>
 </p>
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ufb6vxlswtxi6nlgxopwipjhnm&cover_image=true&theme=novatorem&show_offline=false&background_color=33a35a&interchange=false&profanity=false&bar_color=ff0000&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
