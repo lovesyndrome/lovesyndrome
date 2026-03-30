@@ -1,7 +1,7 @@
 <div align="center">
 
-am i really that dramatic
-    
+hola manzanas club dni weirdos/j
+
 <p align="center">
   
 </p>
@@ -14,26 +14,18 @@ am i really that dramatic
 theres no way that no one knew I loved this anime since 2021 I was late but yeah
 </p>
 <p align="center">
-IM SORRY NEW ATA I LOST IT!
+hi Samu, hi Dorian, hi Sasha!
 </p>
 <br>
 <p align="center">
   <a href=https://rentry.co/hyrulewarriorss>rrentry</a> ⠀⠀ <a href=https://qcats.atabook.org/>atab</a>
 </p>
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ufb6vxlswtxi6nlgxopwipjhnm&cover_image=true&theme=novatorem&show_offline=false&background_color=33a35a&interchange=false&profanity=false&bar_color=ff0000&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ufb6vxlswtxi6nlgxopwipjhnm&cover_image=true&theme=novatorem&show_offline=false&background_color=33a35a&interchange=false&profanity=false&bar_color=ff0000&bar_color_cover=false)](https://github.com/MANJlKAI/spotify-github-profile)
   </a>
 </p>
 <br>
 
-yaoi line: bajitora, izakaku, takemikey kokoinui, hankisa, wait
 
-GUYS!! Mirai Nikki fans int im slowly loosing hope to watch it bare with me guys
-
-<img width="351" height="251" alt="1113" src="https://github.com/user-attachments/assets/d161c2e9-1be6-4485-a6ea-b1e2d16b562f" />
-
-</p> 
- and to whoever whispered this to me THANK YOU because yes I'm a Kazutora fan #sharing ig and he's just a cutie patootie just LOOK i buyed a valhalla jacket just fo add it to my collection<3
-  
 
 
