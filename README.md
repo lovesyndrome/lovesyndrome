@@ -15,6 +15,7 @@ theres no way that no one knew I loved this anime since 2021 I was late but yeah
 </p>
 <p align="center">
 hi Samu, hi Dorian, hi Sasha!
+  02:03 PM[Luckiest boy] Tell him to make it himself hah01:54 PM[Luckiest boy] I DIDNT THOUGHT BOXERS WAS TJAT BAD
 </p>
 <br>
 <p align="center">
