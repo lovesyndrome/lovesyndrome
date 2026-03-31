@@ -15,10 +15,14 @@ hola manzanas club dni weirdos/j
 Team Walhalla!
 </p>
 <p align="center">
-Mayday
+Mayday,
+  
 If there is nobody(peek a boo), brains will be lazy
+
 Looking for a be-bop life
+
 Hanging low, daydreams, No, No, No
+
 Praying to god obviously
 </p>
 <br>
