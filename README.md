@@ -27,7 +27,7 @@ Praying to god obviously
 </p>
 <br>
 <p align="center">
-  <a href=https://rentry.co/hyrulewarriorss>rrentry</a> ⠀⠀ <a href=https://qoreboy.atabook.org/>atab</a>
+  <a href=https://rentry.co/tokyowonder>rrentry</a> ⠀⠀ <a href=https://qoreboy.atabook.org/>atab</a>
 </p>
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ufb6vxlswtxi6nlgxopwipjhnm&cover_image=true&theme=novatorem&show_offline=false&background_color=33a35a&interchange=false&profanity=false&bar_color=ff0000&bar_color_cover=false)](https://github.com/MANJlKAI/spotify-github-profile)
