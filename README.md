@@ -1,7 +1,7 @@
 
 <div align="center">
 
-$${\color{red}TOKYO\space WONDER\space }$$
+$${\color{yellow}gore\space core\space }$$
 
 <p align="center">
   
