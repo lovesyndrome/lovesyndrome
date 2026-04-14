@@ -8,23 +8,15 @@ $${\color{red}TOKYO\space WONDER\space }$$
 </p>
 
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/8ed97de9-fa0d-467f-bb5b-b43221d3dcd2" width="400"/>
+  <img src="https://github.com/user-attachments/assets/0a27b181-0800-407d-a202-480064caaaa7" width="400"/>
 
   
 </p>
 <p align="center">
-[spreads ata WIDELY open 4 u] do u watch two pieces
+you're not alone.
 </p>
 <p align="center">
-Mayday,
-  
-If there is nobody(peek a boo), brains will be lazy
 
-Looking for a be-bop life
-
-Hanging low, daydreams, No, No, No
-
-Praying to god obviously
 </p>
 <br>
 <p align="center">
