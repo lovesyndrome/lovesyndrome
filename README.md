@@ -10,6 +10,7 @@ $${\color{yellow}gore\space core\space }$$
 <p align="center">
   <img src="https://github.com/user-attachments/assets/0a27b181-0800-407d-a202-480064caaaa7" width="400"/>
 
+<img width="736" height="736" alt="666" src="https://github.com/user-attachments/assets/100d5879-4bec-4275-8840-ab1fc34a6f37" />
   
 </p>
 <p align="center">
