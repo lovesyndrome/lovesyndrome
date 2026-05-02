@@ -14,7 +14,7 @@ $${\color{Blue}DETECTIVE\space CONAN\space }$$
 
 $$\color{#20202020}hi\space :$$ [karina](https://github.com/fishcork) • [ren](https://github.com/octopusdevil) • [ayla](https://github.com/bloodyguns) • [samu](https://github.com/nagiwoo) • [kem](https://github.com/K3m-kem)
 
-additional yaoi line: BajiTora, KokoInui,,KakuIza,,TakeMikey, HanKisa more to be added right @marieisnotme
+count your days before I hack your entire system! (totally your heart) loveware ♡
 
 [rentry](https://rentry.co/tokyowonder)‎ ‎  [ataboo](https://qoreboy.atabook.org/)
 [prnouns.cc](https://pronouns.cc/@xbri)
