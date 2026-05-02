@@ -12,7 +12,7 @@ $${\color{Blue}DETECTIVE\space CONAN\space }$$
 
 <div align="center">
 
-$$\color{#20202020}hi\space :$$ [karina](https://github.com/fishcork) • [ren](https://github.com/yyoshidaa) • [ayla](https://github.com/bloodyguns) • [samu](https://github.com/nagiwoo) • [kem](https://github.com/K3m-kem)
+$$\color{#20202020}hi\space :$$ [karina](https://github.com/fishcork) • [ren](https://github.com/octopusdevil) • [ayla](https://github.com/bloodyguns) • [samu](https://github.com/nagiwoo) • [kem](https://github.com/K3m-kem)
 
 additional yaoi line: BajiTora, KokoInui,,KakuIza,,TakeMikey, HanKisa more to be added right @marieisnotme
 
